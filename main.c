@@ -1,1 +1,2 @@
-Idzie jas lasem. Worek piasku niesie. Nie wie dokad pojdzie. Ake sie nie zniesie.
+Idzie jaœ lasem. Worek piasku niesie. 
+Nie wie dok¹d pójdzie. Ale siê nie zniesie.
